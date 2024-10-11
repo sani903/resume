@@ -1,2 +1,2 @@
 # resume
-My resume as of 6/12/2022
+My resume as of 10/11/2024
